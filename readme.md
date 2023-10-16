@@ -4,3 +4,6 @@
 * Fikir Null dan Alsım Helal etsin artık yapıcak bişi yok
 
   ![Null](discord.com/users/1087046712880803852)
+
+
+Görseller Null un Repoda Var Ben Direk Botu Atıcam
